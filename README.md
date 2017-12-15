@@ -178,3 +178,4 @@
 1. [影响力：如何说服他人](http://www.ruanyifeng.com/blog/2013/08/influence_the_psychology_of_persuasion.html)，2013年7月
 1. 异类——不一样的成功启示录，2013年5月
 
+很赞
